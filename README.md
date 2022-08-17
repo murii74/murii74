@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me:Twitter: Murii74m Discord: Ray#3208
 - 😄 Pronouns: HE/him/BIG AYM/RAY
 - ⚡ Fun fact: 24/7 on discord
--  ![alt text] (https://c.tenor.com/3tZndmyGVEgAAAAC/anime-depressed.gif)
+![alt text] (https://c.tenor.com/3tZndmyGVEgAAAAC/anime-depressed.gif)
 
 
 
