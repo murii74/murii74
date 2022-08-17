@@ -12,7 +12,12 @@ Here are some ideas to get you started:
 - 💬 Ask me about Don´t ask 
 - 📫 How to reach me:Twitter: Murii74m Discord: Ray#3208
 - 😄 Pronouns: HE/him/BIG AYM/RAY
-- ⚡ Fun fact: 24/7 on discord
+- ⚡ Fun fact: 24/7 on discord LEVIIIIIIII
+
+
+![main-qimg-5bcef5e52796f74d61354f72fc609ae9](https://user-images.githubusercontent.com/94465437/185073843-4aac47e5-6c00-4606-94f2-58ed1d13ff4e.gif)
+
+
 
 
 
