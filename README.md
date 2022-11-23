@@ -5,7 +5,7 @@
 - 💬 Ask me about Don´t ask 
 - 📫 How to reach me:Twitter: Murii74m Discord: Ray#3208
 - 😄 Pronouns: HE/him/BIG AYM/RAY
-- ⚡ Fun fact: 24/7 on discord LEVIIIIIIII
+- ⚡ Fun fact: 24/7 on discord 
 
 :smirk::purple_heart::smirk:
 
