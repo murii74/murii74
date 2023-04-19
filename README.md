@@ -9,7 +9,7 @@
 
 :smirk::purple_heart::smirk:
 
-![main-qimg-5bcef5e52796f74d61354f72fc609ae9]([https://user-images.githubusercontent.com/94465437/185073843-4aac47e5-6c00-4606-94f2-58ed1d13ff4e.gif](https://i.pinimg.com/originals/a5/77/a7/a577a7e0ad09110f9b9826bbc2188f39.gif))
+![main-qimg-5bcef5e52796f74d61354f72fc609ae9](https://i.pinimg.com/originals/a5/77/a7/a577a7e0ad09110f9b9826bbc2188f39.gif)
 
 
 
