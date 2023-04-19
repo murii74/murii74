@@ -3,7 +3,7 @@
 - 👯 I’m looking to collaborate on class projects
 - 🤔 I’m looking for help with Class projects
 - 💬 Ask me about Don´t ask 
-- 📫 How to reach me:Twitter: Murii74m Discord: Ray#3208
+- 📫 How to reach me:Twitter: Murii74m Discord: Ray#1736
 - 😄 Pronouns: HE/him/BIG AYM/RAY
 - ⚡ Fun fact: 24/7 on discord 
 
